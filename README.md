@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Swiftyyofc
+- 👀 I’m interested in doing some programs like DDoSers or some other shit
+- 🌱 I know how to do things in py,html,java
+- Currently working on little titties w/ friends
